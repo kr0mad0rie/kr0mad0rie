@@ -1,5 +1,4 @@
-𝙝𝙬𝙡𝙡𝙤 𝙚𝙫𝙧𝙮𝙥𝙤𝙣𝙮 \*waving emoji\*
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Lora&duration=3000&pause=300&color=B00B69&multiline=true&repeat=false&width=435&height=110&lines=%22because+it's+you%2C;and+only+you+who+i+want+to+kill.%22;%22i+want+to+make+it+so;you+can+no+longer+smile.%22+%5E_%5E)](https://git.io/typing-svg)
 ★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★
 
 <code style="color : name_color">𝗗𝗡𝗖 𝗔𝗡𝗬 𝗢𝗙 𝗠𝗬 𝗦𝗞𝗜𝗡𝗦</code> 
@@ -13,7 +12,7 @@
 
 ➪ 𝙄𝙉𝙏𝙀𝙍𝙀𝙎𝙏𝙎??  mainly 𝘦𝘯𝘴𝘵𝘢𝘳𝘴, 𝘱𝘩𝘪𝘨𝘩𝘵𝘪𝘯𝘨, 𝘷𝘰𝘤𝘢𝘭𝘰𝘪𝘥 & 𝘱𝘢𝘵𝘩 𝘵𝘰 𝘯𝘰𝘸𝘩𝘦𝘳𝘦  // *ғᴏʀ ᴏᴛʜᴇʀs, sᴛʀᴀᴡᴘᴀɢᴇ!!*
 
-➪ 𝙎𝙏𝙐𝙁𝙁 𝘼𝘽𝙊𝙐𝙏 𝙈𝙀?? really introverted. bad at convos. feel free 2 talk w/ me though. i love lasagna.
+➪ 𝙎𝙏𝙐𝙁𝙁 𝘼𝘽𝙊𝙐𝙏 𝙈𝙀?? really introverted. bad at convos. feel free 2 talk w/ me though. i love lasagna. also the song i used 4 the lyrics up there is "ごめんなさいを言えるかな"//"i wonder if you'll say you're sorry" by machigerita :D
 
 ★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★
 
