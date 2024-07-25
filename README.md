@@ -1,5 +1,6 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Lora&duration=3000&pause=300&color=B00B69&multiline=true&repeat=false&width=435&height=110&lines=%22because+it's+you%2C;%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4and+only+you+who+i+want+to+kill.%22;%22i+want+to+make+it+so;%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4you+can+no+longer+smile.%22+%5E_%5E)](https://git.io/typing-svg)
-★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★
+<P align="middle"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Lora&duration=3000&pause=300&color=B00B69&multiline=true&repeat=false&width=435&height=110&lines=%22because+it's+you%2C;%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4and+only+you+who+i+want+to+kill.%22;%22i+want+to+make+it+so;%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4you+can+no+longer+smile.%22+%5E_%5E" alt="Typing SVG" /></a>
+  
+<P align="middle">★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★
 
 <code style="color : name_color">𝗗𝗡𝗖 𝗔𝗡𝗬 𝗢𝗙 𝗠𝗬 𝗦𝗞𝗜𝗡𝗦</code> 
 ⠀
@@ -14,7 +15,7 @@
 
 ➪ 𝙎𝙏𝙐𝙁𝙁 𝘼𝘽𝙊𝙐𝙏 𝙈𝙀?? really introverted. bad at convos. feel free 2 talk w/ me though. i love lasagna. also the song i used 4 the lyrics up there is "ごめんなさいを言えるかな"//"i wonder if you'll say you're sorry" by machigerita :D
 
-★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★
+<P align="middle">★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★
 
 <P align="middle">𝗼𝗵 𝗮𝗹𝘀𝗼 𝘆𝗼𝘂 𝗰𝗮𝗻 𝗮𝘀𝗸 𝗼𝗿 𝗱𝗿𝗮𝘄 𝗺𝗲 𝘀𝘁𝘂𝗳𝗳 𝗶𝗻 𝘀𝘁𝗿𝗮𝘄𝗽𝗮𝗴𝗲 :3𝗰
 
