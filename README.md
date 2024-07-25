@@ -13,7 +13,7 @@
 
 ➪ 𝙄𝙉𝙏𝙀𝙍𝙀𝙎𝙏𝙎??  mainly 𝘦𝘯𝘴𝘵𝘢𝘳𝘴, 𝘱𝘩𝘪𝘨𝘩𝘵𝘪𝘯𝘨, 𝘷𝘰𝘤𝘢𝘭𝘰𝘪𝘥 & 𝘱𝘢𝘵𝘩 𝘵𝘰 𝘯𝘰𝘸𝘩𝘦𝘳𝘦  // *ғᴏʀ ᴏᴛʜᴇʀs, sᴛʀᴀᴡᴘᴀɢᴇ!!*
 
-➪ 𝙎𝙏𝙐𝙁𝙁 𝘼𝘽𝙊𝙐𝙏 𝙈𝙀?? really introverted. bad at convos. feel free 2 talk w/ me though. i love lasagna. also the song i used 4 the lyrics up there is "ごめんなさいを言えるかな"//"i wonder if you'll say you're sorry" by machigerita :D
+➪ 𝙎𝙏𝙐𝙁𝙁 𝘼𝘽𝙊𝙐𝙏 𝙈𝙀?? really introverted. bad at convos. feel free 2 talk w/ me though. i love lasagna. also the song i used 4 the lyrics up there is "ごめんなさいを言えるかな"//"i wonder if you'll say you're sorry" by machigerita :D  oct 8 my day. buy me brobux /j unlessssssssssss??
 
 <P align="middle">★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★
 
