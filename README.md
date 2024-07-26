@@ -1,4 +1,4 @@
-<P align="middle"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Lora&duration=3000&pause=300&color=B00B69&multiline=true&repeat=false&width=435&height=110&lines=%22because+it's+you%2C;%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4and+only+you+who+i+want+to+kill.%22;%22i+want+to+make+it+so;%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4you+can+no+longer+smile.%22+%5E_%5E" alt="Typing SVG" /></a>
+<P align="middle"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Lora&duration=3000&pause=300&color=B00B69&multiline=true&repeat=false&width=435&height=110&lines=%E3%85%A4%22%E3%85%A4because+it's+you%2C;%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4and+only+you+i+want+to+kill.%E3%85%A4%22;%22%E3%85%A4i+want+to+make+it+so;%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4you+can+no+longer+smile.%E3%85%A4%22+%E3%85%A4%5E_%5E" alt="Typing SVG" /></a>
   
 <P align="middle">★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★☆★
 
