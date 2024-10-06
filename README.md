@@ -31,7 +31,7 @@
 𝙎𝙏𝙐𝙁𝙁 𝘼𝘽𝙊𝙐𝙏 𝙈𝙀??⠀
 <img src="https://github.com/user-attachments/assets/0c368f4c-7802-4284-ba07-c241e3459919"/>
 
-<P align="middle">➪  offtab 80% of the time. really introverted. bad at convos. feel free 2 talk w/ me though. i lovelovelveo love pink characters. especially if they're scientistsstsy COUGHCOUGH subspace phighting & summer ptn.
+<P align="middle">➪  offtab 80% of the time. really introverted. bad at convos. feel free 2 talk w/ me though. i lovelovelveo love pink characters. especially if they're scientistsstsy COUGHCOUGH subspace phighting & summer ptn. 𝘼𝙇𝙎𝙊 if you compliment/talk to me and i don't respond/leave right after then i'm probably AFK or i just disconnected. thx 4 compliments in advance. ((if you fit my dni then yeah i probably ignored you on purpose ✌️^ω^)
 
 <P align="middle"><img src="https://github.com/user-attachments/assets/3f342859-4565-4cac-b381-ccd86e0836c2" width="35%"/>
 
